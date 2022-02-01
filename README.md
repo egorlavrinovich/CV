@@ -1,1 +1,1 @@
-https://egorlavrinovich.github.io/CVV/#
+https://egorlavrinovich.github.io/CV/#
